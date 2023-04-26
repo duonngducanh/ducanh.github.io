@@ -1,0 +1,1 @@
+<!-- Start Code Gat4y.wap.sh --><script type="text/javascript" src="http://gat4y.wap.sh/code/hoa-dao-roi.js"></script><!-- End Code Gat4y.wap.sh -->
